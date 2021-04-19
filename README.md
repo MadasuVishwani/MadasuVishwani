@@ -8,4 +8,3 @@
 - 💬 Ask me about any Painting or Sketching related stuff.
 - 📫 How to reach me: LinkedIn (Vishwani Madasu)
 - 😄 Pronouns: She/Her
--->
